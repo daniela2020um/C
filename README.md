@@ -1,1 +1,0 @@
-The game "Rastros" was created in 1992. It is a positional game in which players share pieces and run a “ball” in an attempt to score an “own goal” or corner the opponent.
